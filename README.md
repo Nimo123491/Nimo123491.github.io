@@ -1,4 +1,4 @@
 # Nimo123491.git
 
-hi my name is Nimo and i am in the 8th grade  and i really want skittles who got them?
-or any other candy? 
+hi my name is Nimo and this my website . if you hack it i will hunt you.if you bully people i will destroy you !!!!!!!!!
+dont mess with my website i warned you .
